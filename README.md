@@ -1,2 +1,1 @@
-# Collab
-Collaboration
+# 공산당 만세
